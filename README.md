@@ -7,7 +7,7 @@
 - 👯 I’m looking to collaborate with R/Python data scientists working on supply chain problems. 
 - 🤔 I’m open for any opportunities in any of the above mentioned fields. 
 - 💬 Ask me about: Supply Chain Management, Logistics and Transportation, Operations Analytics and how mathematics and business analytics go hand-in-hand. 
-- 📫 How to reach me:  
+- 📫 How to reach me: alirazadscm@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I cook desi dishes for my family and friends. Love to speak Punjabi...
 
